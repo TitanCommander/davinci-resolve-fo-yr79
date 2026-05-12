@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows smart Tool: color-correction & transition-effects is the best DaVinci Resolve for PC | DaVinci Resolve for Windows tool,
 
 
 
